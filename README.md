@@ -1,0 +1,2 @@
+# veri_madenciligi_bil524
+veri_madenciligi_bil524
